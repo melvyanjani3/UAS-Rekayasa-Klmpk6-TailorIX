@@ -13,7 +13,7 @@ April 2025
 |khansa |
 |riphan |
 |usman |
-|aziz |
+|m. azis|
 |denis |
 
 **PROGRAM STUDI SISTEM INFORMASI**
